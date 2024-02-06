@@ -1,4 +1,3 @@
-Founder of Prime Hydration
 
 Previously partnered with Arsenal, UFC, Super Bowl LVII, FC Barcelona and FC Bayern Munich
 
